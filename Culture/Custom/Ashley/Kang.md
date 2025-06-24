@@ -1,0 +1,11 @@
+It's highly unlikely that Jonathan Majors will return to the MCU as Kang to tie up loose ends.
+
+Here's a breakdown of the situation:
+
+* **Marvel's Decision:** Marvel Studios officially fired Jonathan Majors in December 2023 after he was convicted of misdemeanor third-degree assault and second-degree harassment of his ex-girlfriend. This was a direct result of his legal issues.
+* **Pivot Away from Kang:** Following Majors' legal troubles and the relatively underwhelming box office performance of *Ant-Man and the Wasp: Quantumania* (where Kang was a primary villain), there have been significant reports and indications that Marvel is shifting its "Multiverse Saga" away from Kang as the central big bad. The upcoming *Avengers: The Kang Dynasty* title has reportedly been changed internally to *Avengers 5* or *Avengers: Doomsday*, with speculation that Doctor Doom (potentially played by a returning Robert Downey Jr.) will take on a more prominent villain role.
+* **Majors' Stance:** While Majors himself has expressed a desire to return to the role, stating "Yeah, of course I say yes. Disney, Marvel Studios, I love them," this sentiment hasn't translated into any confirmed discussions or plans from Marvel.
+* **Recasting is More Likely (if Kang returns at all):** If Marvel were to continue with Kang's storyline in any significant way, the overwhelming consensus is that they would recast the role. The multiverse concept makes recasting easy to explain, as there are infinite variants of Kang. There have even been rumors about specific actors being considered for a recast.
+* **Public Image:** Despite Majors' attempts to rehabilitate his public image, the legal conviction and associated negative publicity make it a significant hurdle for a major studio like Disney/Marvel to bring him back into a prominent role, especially one that was set to be the face of an entire saga.
+
+While the MCU does have "loose ends" with Kang's variants and the Council of Kangs established in *Loki* season 1 and *Quantumania*, it appears Marvel is more inclined to either resolve these briefly with a recast actor or pivot entirely to a new antagonist to move forward. The current trajectory suggests a shift away from Majors and likely a diminished role for Kang overall, or a new actor taking on the mantle.
